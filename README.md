@@ -37,11 +37,131 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The confession of faith contending how the troubled man should seeke refuge at his God, thereto led 
+
+1. TO THE RIGHT Honourable, and Vertuous Ladie, ALISON SANDILANDS, Lady of Hormistoun: Thomas Vautrollier, her humble Seruitour; wisheth grace, and peace, in Christ Iesus.
+
+1. IOHN KNOX, THE bound Seruant of IESVS CHRIST, vnto his best beloued brethren, of the congregation of the Castle, of S. Andrewes. And to all professours of Christs true Euangell, desireth grace, mercy, & peace, from God the Father, with perpetuall consolation of the holy spirite.
+
+1. ¶ THE AVTHOR, VNTO THE FAITHFVLL Readers.
+
 #####Body#####
-The confession of faith contending how the troubled man should seeke refuge at his God, thereto led 
+
+1. THE I. CHAPTER.
+
+1. THE II. CHAP.
+
+1. THE III. CHAP.
+
+1. THE IIII. CHAP.
+
+1. THE V. CHAP.
+
+1. THE VI. CHAP.
+
+1. THE VII. CHAP.
+
+1. THE VIII. CHAP.
+
+1. THE IX. CHAP.
+
+1. THE X. CHAP.
+
+1. THE XI. CHAP.
+
+1. THE XII. CHAP.
+
+1. THE XIII. CHAP.
+
+1. THE XIIII. CHAP.
+
+1. THE XV. CHAP.
+
+1. THE XVI. CHAP.
+
+1. THE XVII. CHAP.
+
+1. THE XVIII. CHAP.
+
+1. THE XIX. CHAP.
+
+1. THE XX. CHAP.
+
+1. THE XXI. CHAP.
+
+1. THE XXII. CHAP.
+
+1. THE XXIII. CHAP.
+
+1. THE XXIIII. CHAP.
+
+1. THE XXV. CHAP.
+
+1. THE XXVI. CHAP.
+
+1. THE XXVII. CHAP.
+
+1. THE XXVIII CHAP.
+
 #####Back#####
-The confession of faith contending how the troubled man should seeke refuge at his God, thereto led 
+
+1. TO THE READER.
+
+1. THE SOMMARIE OF the first Chap.
+
+1. The sommarie of the second Chapter.
+
+1. The sommarie of the third Chapter.
+
+1. The sommary of the fourth Chapter.
+
+1. The Sommarie of the 5. Chapter.
+
+1. The sommarie of the 6. Chap.
+
+1. The sommarie of the seuinth Chap.
+
+1. The sommary of the eight chapter.
+
+1. The sommarie of the ninth Chapter.
+
+1. The sommary of the 10. Chap.
+
+1. The sommarie of the 11. Chapter.
+
+1. The sommarie of the twelfth Chapter.
+
+1. The sommary of the xiij chap.
+
+1. The sommary of the 14. Chap.
+
+1. The sommary of the 15. Chap.
+
+1. The sommarie of the 16 Chap.
+
+1. The sommarie of the 17. Chap.
+
+1. The sommarie of the 18. Chap.
+
+1. The sommary of the 19. Chap.
+
+1. The sommarie of the 20. Chap.
+
+1. The sommary of the 21 chap.
+
+1. The sommarie of the 22. Chap.
+
+1. The Sommarie of the 23. Chap.
+
+1. The sommary of the 24. chapter.
+
+1. The sommary of the 25. Chap.
+
+1. The sommarie of the twenty sixt Chapter.
+
+1. The sommary of the twentie ewint chap.
+
+1. The sommarie of the 28 Chap.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
